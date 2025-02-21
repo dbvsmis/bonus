@@ -1,9 +1,9 @@
 # 🎰 Deneme Bonusu Veren Siteler 🎉 | Kumar ve Slot Oyunlarında Kazan! 💸
 
-# [Bonusları İncelemek İçin Tıkla](https://t.ly/IsLRQ)
-# [Bonusları İncelemek İçin Tıkla](https://t.ly/IsLRQ)
-# [Bonusları İncelemek İçin Tıkla](https://t.ly/IsLRQ)
-# [Bonusları İncelemek İçin Tıkla](https://t.ly/IsLRQ)
+# [Bonusları İncelemek İçin Tıkla](https://cutt.ly/EreytWq9)
+# [Bonusları İncelemek İçin Tıkla](https://cutt.ly/EreytWq9)
+# [Bonusları İncelemek İçin Tıkla](https://cutt.ly/EreytWq9)
+# [Bonusları İncelemek İçin Tıkla](https://cutt.ly/EreytWq9)
 
 <br>
 
